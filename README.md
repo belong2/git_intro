@@ -1,2 +1,4 @@
 Bradley Long
-13
+longb2@oregonstate.edu
+blue
+Led Zeppelin
